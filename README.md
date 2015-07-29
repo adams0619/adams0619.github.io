@@ -1,1 +1,1 @@
-# adams0619.github.io
+# Thanks for checking out my personal website
